@@ -5,6 +5,9 @@
 - 📫 How to reach me via email rehyan92@hotmail.co.uk
 - 😃 Pronouns: She/Her
 - ⚡ Fun fact: I'll always see the best in you and make sure you see and feel it about yourself also.
+- 💻 [linkedin.com/in/rehyan-rhoden](https://www.linkedin.com/in/rehyan-rhoden/)
+- 💻 https://huntr.co/p/rehyan-rhoden
+
 
 <!---
 Dev-Rehyan/Dev-Rehyan is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
