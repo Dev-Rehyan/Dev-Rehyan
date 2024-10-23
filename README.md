@@ -6,7 +6,7 @@
 - 😃 Pronouns: She/Her
 - ⚡ Fun fact: I'll always see the best in you and make sure you see and feel it about yourself also.
 - 💻 [linkedin.com/in/rehyan-rhoden](https://www.linkedin.com/in/rehyan-rhoden/)
-- 💻 https://huntr.co/p/rehyan-rhoden
+- 💻 [huntr.co/p/rehyan-rhoden](https://huntr.co/p/rehyan-rhoden)
 
 
 <!---
